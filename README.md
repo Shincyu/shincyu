@@ -2,7 +2,7 @@
 
 
 
-
+[![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=temprist&extraCount=82753&color=f9f2dd&labelColor=f8ce73&logo=roblox)](https://hits.sh/github.com/twottimey/)
 
 
 
