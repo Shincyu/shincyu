@@ -3,7 +3,6 @@
 
 
 
-[![Hits](https://hits.sh/github.com/twottimey.svg?label=polar%20cub&extraCount=87166&color=973a5a&labelColor=e85586&logo=roblox)](https://hits.sh/github.com/twottimey/)
 
 
 
@@ -11,7 +10,7 @@
 
 
 
-<img src="https://github.com/Shincyu/hello/blob/ae12a39f5d32efda9109d50d2f7dba42649b500b/Kho%CC%82ng%20Co%CC%81%20Tie%CC%82u%20%C4%90e%CC%82%CC%801_20261112093914.png" width="500" >
+<img src="https://github.com/Shincyu/shincyu/blob/881ef99161214f7d94a6ed6aecb08de4cb046105/Kho%CC%82ng%20Co%CC%81%20Tie%CC%82u%20%C4%90e%CC%82%CC%804_20261119094519.png" width="500" >
 
 
 
