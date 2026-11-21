@@ -1,7 +1,7 @@
 
 
 
-
+[![Hits](https://hits.sh/github.com/twottimey.svg?label=laughability&extraCount=25820&color=f4d9b5&labelColor=e05d44)](https://hits.sh/github.com/twottimey/)
 
 
 
@@ -14,5 +14,5 @@
 
 
 
-
+sủa đi em sủa nhiều vào nhé
 
