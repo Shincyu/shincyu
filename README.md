@@ -35,3 +35,36 @@ tội 4 : sĩ vương. bro nói mình là đại gia nạp 200 robux cho mình v
 
 bonus lol
 <img src="https://cdn.discordapp.com/attachments/1562772108768059446/1574279631454998658/IMG_20261123_060823.jpg?ex=6b085d68&is=6b070be8&hm=e96c1b0853c503a461e956c2beb9a6ad907d113cf838ae5cd2b044a5c4301be9" height="300">
+
+
+“nó nói cũng mất máu r nhập viện nói sắp chết “
+
+- tao nhập viện thật nhưng m nói t sắp chết là đéo nhé ? them mắm thêm muối à 😂
+
+“trước kia lúc đéo nào cũng động viên an ủi nó, động viên nó, bên cạnh nó, xong cái cuối cùng ảo t 2 mặt, giả dối “ 
+
+- m nghĩ là m động viên an ủi t ko ? an ủi cho có chứ t chả thấy khá chút nào m chỉ gây thêm phiền phức cho t thôi còn m nói bên cạnh t à ? m ngồi t chút thì lại lên chs với bạn bỏ t ngay đó đéo thèm t chơi cùng dù m có kêu t lên thì t cũng đéo lên vì t lên thì m chỉ chs với bạn m chứ ko phải t m chỉ kêu t lên để trưng tý chứ đéo có chơi cùng j hết.
+
+
+“cái lúc t đối xử tốt thì đel nói ra, nói cách nó suy nghĩ ra”
+
+- m chắc chắn m đã đối xử tốt với t chưa ? t nhớ lúc t với m còn yêu s m cứ nhớ ai đó nhỉ ? nhớ tuna nhớ till ? cầu mong cho 2 bạn ấy onl với m ? ew. . . t nhớ người khác thì đéo cho m nhớ ng khác t nói con mẹ j ko ? v mà đối xử tốt t à ? nhìn bản thân dơ bẩn của m đi r hãy nch với t m cũng đéo có xứng để mà nch vì m là chó ngoài đường mà ✌️
+
+“ nó bảo t giả dối ? nó biết t trải qua cái đéo gì ko ? “
+
+- m đã trải qua những lần m khiến bạn m khóc trước màng hình điện thoại m. m đã dắt mũi bọn t m đã làm người khác tổn thương. m biết t bị xhtd khi còn nhỏ r mà . v sao m joke m cái qhtd vậy ? não m có bị ngáo ko ? những vết sẹo trên tay t là do m hết tất cả là tại m. tao ghét mày đi chết đi
+
+“ ê, mỗi ng 1 nói, đel biết j nói như thật??” 
+
+- vậy sao m lại nói bị mẹ ghẻ và em m hành hạ m. vậy tsao m nói m đang nhập viện. v m đăng cái mặt chó m lên làm gì. t nói thật m có con mẹ j là m kể hết cho bọn t nghe á ? thằng ngu
+
+
+“ t an ủi thật lòng, nó trả t như v… chỉ vì nó nghe bạn nó nói về t”
+
+- vậy t yêu m thật lòng, t nói sự thật với m mà m đối xử t vậy à? m nói m sẽ ko bao h m nói dối nữa mà ? bạn t nói đúng mà m nói đéo gì v ? thằng súc vật phát ngôn như chó sủa
+
+“nó nghĩ t vui “
+
+- thì t nói m vui đéo đâu hay m bị điên ? vô trại là vừa r đấy tuất ạ 🫩 
+
+
