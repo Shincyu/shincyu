@@ -33,7 +33,7 @@ tội 4 : sĩ vương. bro nói mình là đại gia nạp 200 robux cho mình v
 
 
 
-bonus lol
+bonus lol . not mine
 <img src="https://cdn.discordapp.com/attachments/1562772108768059446/1574279631454998658/IMG_20261123_060823.jpg?ex=6b085d68&is=6b070be8&hm=e96c1b0853c503a461e956c2beb9a6ad907d113cf838ae5cd2b044a5c4301be9" height="300">
 
 
