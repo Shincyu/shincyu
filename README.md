@@ -25,3 +25,7 @@ tội thứ nhất: bịa chuyện, dắt mũi. 1 ngày, bản ấy bịa là b�
 
 
 tội 2 : dị hợm, dê xờm, biến thái, cỡ trường giang. Bạn có nói với mình là có gặp mình thì làm vài hiệp =))))))) xin lỗi t chỉ mới lớp 6 má còn kêu mình bú dih nó nữa mà ? ew dị hợm 🤢 nó còn đồi bóp ngực và đít t nữa mà ?? dơ bẩn thật đéo hiểu sao vẫn có ng chơi với nó 😂
+
+
+
+<img src="https://cdn.discordapp.com/attachments/1562772108768059446/1574279631454998658/IMG_20261123_060823.jpg?ex=6b085d68&is=6b070be8&hm=e96c1b0853c503a461e956c2beb9a6ad907d113cf838ae5cd2b044a5c4301be9" height="300">
