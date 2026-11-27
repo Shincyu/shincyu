@@ -31,6 +31,9 @@ tội 3 : ảo lòi, larp. anh bạn larp anime, dw và nghĩ mình đẹp trai,
 tội 4 : sĩ vương. bro nói mình là đại gia nạp 200 robux cho mình và ruby và những người khác. nhưng nói vài ngày nữa sẽ nạp nhưng thế đéo nào vào tháng sau vẫn chưa nạp cho t. đỉ mẹ m hứa cho đã r ko làm là sao chó ? m bảo m sẽ bỏ hết mxh, nên m mà vẫn còn vác cái mặt chó của m lên đây mà nói thì đừng để t thêm mấy cái acc mxh và viết thêm văn cho m đọc nhé chó larp 2 mặt 🫩
 
 
+tội 5 : ngoại tình. lừa dối. trong lúc nó còn yêu t thì nó có quen qua lại với bạn nó là jen và sen. nó quen đến hồi tháng 3 còn jen thì chưa rõ. khi mà jen biết nó yêu t thì jen ko còn hi vọng j thằng đó. block thg đó. còn sen thì quen lại vs nó bth nhưng sen đồi công khai thì nó ko chịu. sau khi t chơi lại với bạn cũ thì thằng đó đồi qlai với jen. t thì ko biết jen qlai hay ko nữa.
+
+
 
 
 bonus lol . not mine
